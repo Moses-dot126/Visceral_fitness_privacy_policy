@@ -68,7 +68,7 @@ We notify users of updates via:
 
 Contact Us  
 For data requests or concerns:  
-Email: [youremail@visceralfitness.com]  
-Mailing Address: [Your Physical Business Address]  
-Last Updated: [Insert Date]  
+Email: ndepmbeku@gmail.com 
+Last Updated: 2025/04/08
+ 
 
